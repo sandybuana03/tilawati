@@ -1,7 +1,7 @@
 # Download Aplikasi Tilawati Android (APK) & PDF
 
 
-## 1. Donwload Langsung APK
+## 1. Download Langsung APK
 [Klik Tulisan Biru ini untuk Download secara Langsung](https://drive.google.com/uc?export=download&confirm=ErON&id=1CTKgFuYIkqPZDaoIMun_thH42uiafdlj)
 
 ## 2. Link Download APK
