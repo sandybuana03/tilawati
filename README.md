@@ -1,4 +1,4 @@
-# Download Aplikasi Tilawati Android (APK) 
+# Download Aplikasi Tilawati Android (APK) & PDF
 
 
 ## 1. Donwload Langsung APK
