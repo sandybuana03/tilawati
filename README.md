@@ -4,5 +4,5 @@
 
 
 
-Atau Klik link berikut untuk preview sebelum mendownload :
+Atau Copy link berikut dan paste dibrowser favorit kalian :
 https://drive.google.com/file/d/1CTKgFuYIkqPZDaoIMun_thH42uiafdlj/view?usp=drivesdk
